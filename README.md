@@ -16,3 +16,13 @@
 
 #OUTPUT
 
+![Image](https://github.com/user-attachments/assets/784cb13f-8442-44f6-ac42-5ca64a53be6f)
+
+![Image](https://github.com/user-attachments/assets/1e5e3dbb-1f8d-4b71-8189-a199a474ffcd)
+
+![Image](https://github.com/user-attachments/assets/db06611f-64cb-436a-8ecc-ac1888f8a73a)
+
+![Image](https://github.com/user-attachments/assets/8ebbd7c5-d593-4bff-b9f7-2b6c896ef145)
+
+![Image](https://github.com/user-attachments/assets/6328e7c3-7319-4f62-8b47-4e1aeedc86e4)
+
